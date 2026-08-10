@@ -117,7 +117,7 @@ DOMINUS (dominuscustos).
 Mesh Collars 150L, medieval to modern designs.  
 Inworld Shop: [https://maps.secondlife.com/secondlife/Vahine%20Island/99/230/22
 ](https://maps.secondlife.com/secondlife/Vahine%20Island/99/230/22
-). 
+).   
 Marketplace: [https://marketplace.secondlife.com/stores/183140](https://marketplace.secondlife.com/stores/183140).  
 
 DragonFyre Designs (Lasynda Shichiroji)   
