@@ -113,6 +113,13 @@ Devotion (lottiehottie86)
 Mesh Collars 200L-300L   
 Marketplace: [https://marketplace.secondlife.com/stores/233550](https://marketplace.secondlife.com/stores/233550)   
 
+DOMINUS (dominuscustos).  
+Mesh Collars 150L, medieval to modern designs.  
+Inworld Shop: [https://maps.secondlife.com/secondlife/Vahine%20Island/99/230/22
+](https://maps.secondlife.com/secondlife/Vahine%20Island/99/230/22
+). 
+Marketplace: [https://marketplace.secondlife.com/stores/183140](https://marketplace.secondlife.com/stores/183140).  
+
 DragonFyre Designs (Lasynda Shichiroji)   
 Mesh Collars 0L-100L  
 Inworld Shop: [http://maps.secondlife.com/secondlife/McGavet/142/177/3416](http://maps.secondlife.com/secondlife/McGavet/142/177/3416)   
