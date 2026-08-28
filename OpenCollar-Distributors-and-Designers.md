@@ -41,10 +41,6 @@ Button Wright, Frilly Filly Farm
 The Branded Pony & FFF Tack Shop   
 [http://maps.secondlife.com/secondlife/Oraenji/171/98/90](http://maps.secondlife.com/secondlife/Oraenji/171/98/90)  
 
-Clover Hixantapo, Refined Pleasures  
-Roleplay, Shop, Club  
-[http://maps.secondlife.com/secondlife/Bonaire24/215/196/22](http://maps.secondlife.com/secondlife/Bonaire24/215/196/22)  
-
 Dolma Dollinger, Latex Fetish Mall  
 Shopping Mall  
 [http://maps.secondlife.com/secondlife/Fetish VooDoo/130/92/338](http://maps.secondlife.com/secondlife/Fetish%20VooDoo/130/92/338)  
@@ -52,10 +48,6 @@ Shopping Mall
 Elirk Huntsman, Order of Dracul @ House of Huldschinsky  
 Roleplay & Shop  
 [http://maps.secondlife.com/secondlife/Egglebury/118/53/3001](http://maps.secondlife.com/secondlife/Egglebury/118/53/3001)  
-
-Enigma Rasa, HOFSTADIR VILLAGE  
-Gorean roleplay  
-[http://maps.secondlife.com/secondlife/Serena Billabong/155/100/2999](http://maps.secondlife.com/secondlife/Serena%20Billabong/155/100/2999)  
 
 HaydenPryce, Xaara  
 D/s Community, Art Gallery & Theater  
@@ -87,10 +79,6 @@ Pingout Duffield, Erotica Island
 Club, Shops, Roleplay Areas   
 [http://maps.secondlife.com/secondlife/Erotica Island/41/67/1524](http://maps.secondlife.com/secondlife/Erotica%20Island/41/67/1524)   
 
-Sabina Riederer, Blackrose Castle   
-BDSM Roleplay  
-[http://maps.secondlife.com/secondlife/Blackrose Castle/146/12/23](http://maps.secondlife.com/secondlife/Blackrose%20Castle/146/12/23)    
-
 Silkie Serenade, K-Bar West  
 Western Themed D/s Roleplay  
 [http://maps.secondlife.com/secondlife/KBar West/59/121/24](http://maps.secondlife.com/secondlife/KBar%20West/59/121/24)  
@@ -118,14 +106,6 @@ Inworld Playground & Shop
 Vincent Weigler, Open Bar   
 BDSM RP and Lifestyle Community, realistic immersion (RLV and Experience)   
 [http://maps.secondlife.com/secondlife/Remember/132/134/3001](http://maps.secondlife.com/secondlife/Remember/132/134/3001)   
-
-Weard Welty, Xegul  
-Roleplay & RLV Playground  
-[http://maps.secondlife.com/secondlife/Xegul/170/62/59](http://maps.secondlife.com/secondlife/Xegul/170/62/59)  
-
-ZenBaby Jewell, South Wind  
-Hangout, Nude Beach & Dance Club  
-[http://maps.secondlife.com/secondlife/South Wind/141/155/23](http://maps.secondlife.com/secondlife/South%20Wind/141/155/23)  
 
 OpenCollar Backup, Keraxic   
 Backup Location   
