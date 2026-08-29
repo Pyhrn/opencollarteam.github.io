@@ -194,7 +194,7 @@ Marketplace: [https://marketplace.secondlife.com/stores/207943](https://marketpl
 
 MATRIARCH (Beautifull Vyper)  
 Mesh Collars, Restraints, Toys, Furniture & Accessories - 399L+  
-[Inworld Shop](https://maps.secondlife.com/secondlife/Buffo/128/156/21)   
+[Inworld Shop](https://maps.secondlife.com/secondlife/Mystical%20Shore/128/128/23)   
 [Marketplace](https://marketplace.secondlife.com/stores/202671)   
 [Website](https://marketplace.secondlife.com/stores/202671)   
 [Primfeed](https://www.primfeed.com/matriarch)   
